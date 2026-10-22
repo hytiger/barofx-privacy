@@ -44,7 +44,7 @@ If this policy changes, the updated version will be posted at this address with 
 
 ## Contact
 
-Questions about this policy: **[CONTACT EMAIL]**
+Questions about this policy: **[hypositive@gmail.com](mailto:hypositive@gmail.com)**
 
 ---
 
@@ -90,4 +90,4 @@ BaroFX는 만 13세 미만 아동을 대상으로 하지 않으며, 아동의 �
 
 ## 문의
 
-이 방침에 관한 문의: **[CONTACT EMAIL]**
+이 방침에 관한 문의: **[hypositive@gmail.com](mailto:hypositive@gmail.com)**
